@@ -1,6 +1,1 @@
 react setup guided project
-aejklherfghisupeorhgkjrdfeoiwhgfkjlfh
-dsafdsgoikjgjhsdfkjgfhgjk
-arkgjfhfasdkljghnqwerrefaed
-asdgkuasdjhfkj
-aedkjfhn
